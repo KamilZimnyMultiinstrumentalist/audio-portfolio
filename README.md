@@ -40,7 +40,7 @@ Audio engineer and multi-instrumentalist with 10+ years of experience in live an
 
 ## Connect / Contact
 - Email: coldystudio@gmail.com
-- LinkedIn: [LI Kamil Zimny](www.linkedin.com/in/kamil-zimny-4936a4167) 
+- LinkedIn: [LI Kamil Zimny](https://www.linkedin.com/in/kamil-zimny-4936a4167/) 
 - YouTube: [Kamil Zimny Coldystudio](https://www.youtube.com/@KamilZimnyColdyStudio )
 - Facebook: [FB Kamil Zimny](https://www.facebook.com/kamilzimnyyy ) 
 - Instagram: [IG Kamil Zimny](https://www.instagram.com/kamilzimnyyy/) 
